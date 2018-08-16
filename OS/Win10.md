@@ -1,0 +1,1 @@
+授权码：Windows 10 Enterprise 2015 LTSB N2F77B-TNFGY-69QQF-B8YKP-D69TJ
